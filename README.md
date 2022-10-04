@@ -1,2 +1,0 @@
-# magdalenawasiak.github.io
-Project
